@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @definitelykiva
+- 👀 I’m interested in Black Midis.
+- 🌱 I’m currently learning how to make black midi arts.
+- 💞️ I’m looking for black midi ideas.
+- 📫 I directly send private midis on discord dms.
